@@ -26,4 +26,4 @@ El proyecto fue calificado con **10/10**.
 ---
 
 🧑‍💻 Autor: Carlos Mogollón  
-[LinkedIn](https://www.linkedin.com/in/carlosmogollon)  
+[LinkedIn](https://www.linkedin.com/in/cariosmogoiion/)  
